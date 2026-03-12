@@ -1,0 +1,2 @@
+# H1D024061-PraktikumKB-Pertemuan1
+Praktikum KB_Pertemuan1_Hafizh Naufal Raditya_H1D024061
